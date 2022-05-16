@@ -2,11 +2,10 @@
 # Hi there 👋 
 I'm Wahyu Trijaka
 
--  I enjoy meeting new people and hearing new perspectives
--  Feel free to reach out at any given time to talk to me about business
--  If you have any inquiry or you want me to review or evaluate your project
--  l will keep your identity 100% anonymous! I am looking forward to working with you,
--  please contact me to telegram 🤩
+-  Managed IT Services & Support
+-  Flexible & Effective Solutions.
+-  I am looking forward to working with you.
+-  https://wa.me/c/6285172321993
 ____
 
 <p align="center">
