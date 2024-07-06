@@ -4,8 +4,7 @@ I'm Wahyu Trijaka
 
 -  Managed IT Services & Support
 -  Flexible & Effective Solutions.
--  I am looking forward to working with you.
--  https://wa.me/c/6285172321993
+-  I am looking forward to working with you
 ____
 
 <p align="center">
